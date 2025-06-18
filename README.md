@@ -1,0 +1,1 @@
+# Kisaan-Mitra-Intelligent-Advisor-for-Crop-and-Fertilizers-selection
